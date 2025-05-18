@@ -6,8 +6,7 @@
 - 📫 How to reach me: My Linkedin profile is https://www.linkedin.com/in/rashmi3699/
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: I’m fluent in talking to AI, but not always to humans.
--  🌐 Portfolio: https://portfolio-rosy-five-85.vercel.app/
-
+-  🌐 Portfolio: https://www.rashmijoshi.me/
   
 
 
