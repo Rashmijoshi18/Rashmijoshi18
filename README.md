@@ -5,8 +5,8 @@
 - 👯 I’m looking to collaborate on Coding and projects
 - 📫 How to reach me: My Linkedin profile is https://www.linkedin.com/in/rashmi3699/
 - 😄 Pronouns: She/Her
+- 🌐 Portfolio: https://www.rashmijoshi.me/
 - ⚡ Fun fact: I’m fluent in talking to AI, but not always to humans.
--  🌐 Portfolio: https://www.rashmijoshi.me/
   
 
 
